@@ -8,6 +8,6 @@ don't fully copy, ask for inspiration !
 
 <div align="center">
 
-[atabook](https://allmightyaxle.atabook.org) ⚔︎ [pronouns](https://en.pronouns.page/@allmightyaxle) ⚔︎ rentry [tba]
+[atabook](https://allmightyaxle.atabook.org) ⚔︎ [pronouns](https://pronouns.cc/@allmightyaxle) ⚔︎ rentry [tba]
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=jzzgyjq9f3dlctzw2l2x58w3v&cover_image=true&theme=natemoo-re&show_offline=false&background_color=dcaddc&interchange=false&bar_color=f2e9f1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
