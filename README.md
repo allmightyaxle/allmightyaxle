@@ -1,8 +1,8 @@
 ![image](https://github.com/user-attachments/assets/7571aa93-071f-4ecd-9bea-4e47957ef28c)
 <div align="center">
-<sub> c + h always welcome unless with friends ! ⚔︎ w2i as i am usually tabbed . .
+<sub> c + h encouraged unless with friends ! ⚔︎ w2i as i am usually tabbed . .
 <div align="center">
-don't fully copy, ask for inspiration !
+don't copy, ask for inspiration !
 
 ![image](https://github.com/user-attachments/assets/9c2b4297-e1ae-449c-bfb5-58cc68a9a260)
 
