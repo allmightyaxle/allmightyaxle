@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/7571aa93-071f-4ecd-9bea-4e47957ef28c)
 <div align="center">
-<sub> c + h encouraged unless with friends ! ⚔︎ w2i as i am usually tabbed . .
+<sub> c + h encouraged unless with friends, heavy cuddle comf ^_^ ! ⚔︎ w2i as i am usually tabbed . .
 <div align="center">
 don't copy, ask for inspiration !
 
