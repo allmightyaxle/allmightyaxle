@@ -3,6 +3,7 @@
 <sub> c + h encouraged unless with friends, heavy cuddle comf ^_^ ! ⚔︎ w2i as i am usually tabbed . .
 <div align="center">
 don't copy, ask for inspiration !
+sorry if i unadd you!! i try 2 keep my friends list kinda small and my memory is terrible
 
 ![image](https://github.com/user-attachments/assets/9c2b4297-e1ae-449c-bfb5-58cc68a9a260)
 
