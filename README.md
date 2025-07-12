@@ -5,7 +5,7 @@
 don't copy, ask for inspiration !
 sorry if i unadd you!! i try 2 keep my friends list kinda small and my memory is terrible
 
-![image](https://files.catbox.moe/5uj426.png)
+![image](https://files.catbox.moe/0kvcxy.png)
 
 <div align="center">
 
