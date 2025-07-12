@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/7571aa93-071f-4ecd-9bea-4e47957ef28c)
+![image](https://files.catbox.moe/4r5gji.png)
 <div align="center">
 <sub> c + h encouraged unless with friends, heavy cuddle comf ^_^ ! ⚔︎ w2i as i am usually tabbed . .
 <div align="center">
