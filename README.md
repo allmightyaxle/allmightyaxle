@@ -6,3 +6,4 @@
 </p>
 <p align="center">━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━</p>
 <p align="center">pronounscc、 strawpage、 rentry、</p>
+<p align="center">c+h always welcome unless w friends! (cudcomf)、w2i please! im usually offtab ^_^</p>
