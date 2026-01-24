@@ -1,6 +1,6 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=allmightyaxle&color=9e3b41&label=⚔︎˖.)
-<img alt="divider" src="https://i.imgur.com/zoSwx85.png" />
+<img align="center" alt="divider" src="https://i.imgur.com/zoSwx85.png" />
 <p align="center">
 <img height="320" alt="sword phighting graphic" src="https://i.imgur.com/01Svyhw.png" />
 </p>
